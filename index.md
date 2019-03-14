@@ -104,5 +104,5 @@ It was much more than enough food (especially after our lunch) but it was so goo
 
 ## Monday
 
-# Anyeongyi ke seo
+# Anyeongyhi gaseyo
 I meant to write about my trip throughout the week but instead I’m looking back at it all from the plane. A great trip full of friends, special moments with strangers, new experiences, and some great food. It’s back to the East Coast now where it’s back to the parka and snow boots!
